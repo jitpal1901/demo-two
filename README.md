@@ -2,4 +2,4 @@
 
 # All the codes will be here
 
-All you please
+All you please mount the cable
